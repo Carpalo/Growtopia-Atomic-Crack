@@ -2,6 +2,8 @@
 
 FIXED CRASHING - NEW UPDATED VERSION ( BOTS WORK NOW )
 
+note: dont ask me for scripts ty
+
 Growtopia autofarm atomic crack 
 
 2022 05 20
